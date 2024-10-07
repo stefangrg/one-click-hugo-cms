@@ -25,4 +25,4 @@ For a design piece that became popular post-war at a time of Modernism and preci
 
 Here let's see a image:
 
-![](82987a934cfd2dc47fdeb1a81445d24a.jpg)
+![](exploring-a-website.jpeg)
